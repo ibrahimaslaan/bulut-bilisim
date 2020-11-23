@@ -1,0 +1,2 @@
+# BULUT BİLİŞİM ÖDEV 2
+## İBRAHİM ASLAN
